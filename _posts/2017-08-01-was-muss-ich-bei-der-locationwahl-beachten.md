@@ -1,0 +1,7 @@
+---
+layout: post
+title: 'Was muss ich bei der Locationwahl beachten?'
+categories: wedding
+---
+
+Die Locationwahl ist einfach Geschmacksache. Suchen Sie am besten schon 18 Monate vorher Ihre Location. Vereinbaren Sie einen Besichtigungstermin und lassen Sie sich verschiedene Angebote geben. Lesen Sie sich auch hier Facebook- oder Google Rezensionen durch. Erst wenn sie die Location fest gebucht haben, können sie anfangen die Hochzeitsfeier zu buchen. Als DJ bin ich kein Fan von Locations mit einer großen Terrasse. Dies führt dazu, dass mehr als die Hälfte der Gäste bei einem heißen Sommer oft draußen bleiben und genüsslich hier Getränk trinken und rauchen. Vermeiden Sie so eine Atmosphäre. Die Tanzfläche wird nicht voll sein und die Hochzeitsfeier wird dann nur noch auf der Terrasse fortgeführt. Falls Sie eine Location mit einer Terrasse gebucht haben, empfehle ich Ihnen, die Terrasse gegen 22 Uhr zu schließen. Sie können den Gästen ja wahrheitswidrig mitteilen, dass die Terrasse aufgrund der Nachbarn geschlossen werden muss. Bei wenigen Gästen würde ich eine Location buchen, die keine zu große Tanzfläche hat. Eine große Tanzfläche mit wenigen tanzenden Gästen erzeugt keine gute Stimmung. Dies sieht dann auch nicht schön aus, wenn die Tanzfläche viele Lücken hat. Wenn Sie selber Essen in der Location durch einen Caterer anbieten wollen, müssen Sie das vorher mit der Location abklären. Bestimmte Locations lehnen dieses direkt ab. Weiterhin würde ich euch ein Probeessen empfehlen, damit sie einen Eindruck vom Essen auf Ihrer Hochzeitsfeier bekommen.
